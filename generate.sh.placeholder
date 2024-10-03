@@ -1,0 +1,7 @@
+#!/bin/sh
+set -e
+
+pandoc -f markdown -t html lihaton.md > temp.html
+cat head.template temp.html tail.template > lihaton.html
+cp lihaton.html deploy-path-here/
+cp images/* deploy-path-here/lihaton2024/
