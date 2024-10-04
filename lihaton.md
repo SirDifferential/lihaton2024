@@ -65,3 +65,11 @@ Tästä tuli kolme annosta, josta yhteen lautaselliseen suolaa tuli:
 * Yhteensä 3.6g
 
 Eli alle 5g/vrk kunhan muilla aterioilla ei mene yli - tätä ei enää illalla voisi toista annosta syödä. Jos korvaa tuon valmiin taco-sotkun itse maustetulla tomaattimurskalla, voi suolaa kalibroida vielä enemmän. Itse jäin ehkä tässä vielä kaipaamaan hiukan lisäpotkua - ehkä pienä määrä soijakastiketta voisi toimia tai yksi chili sekaan?
+
+### Torstai 3.10.2024
+
+Eilisen mifusetit vol 2. Sekaan lorautettu pieni määrä soijakastiketta ja omaa verta sormesta. Ei lasketa KÄÄKiksi. Soijakastike ei tuonut lisäarvoa.
+
+### Perjantai 4.10.2024
+
+Viimeiset mifusetit, edelleen ihan syötävää. Seuraavaksi olisikin sitten juna Kuopioon ja viikonlopun KÄÄKit. Ensi viikolla sitten intialaista kotioloissa tehtynä?
