@@ -92,3 +92,11 @@ Puttesin pizzoista margherita on 6/5 kuten aina. Sienipizzassa oli sama 6/5 pohj
 
 ![putte 1](./lihaton2024/putte1.jpg)
 ![putte 2](./lihaton2024/putte2.jpg)
+
+### Maanantai 7.10.2024
+
+Tulikin yllättäen toimistopäivä. Toimistorakennuksen keskiverrossa lounasravintelissa oli tarjolla kasvisratatouillea (oikeinkirjoitusta en tarkasta), ruokalaji, jota en ole ikinä maistanut.
+
+![kasvisratatouille](./lihaton2024/kasvisratatouille.jpg)
+
+Ihan syötävää tavaraa, mutta pysyvämmän mielipiteen saisi paremmasta lounaspaikasta tai itse tekemällä. Mukana myös jotain keltaisia pavunkaltaisia elukoita, joista ei tullut allergiaa. Olisinpa kysynyt mitä ne olivat.
