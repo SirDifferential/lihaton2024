@@ -73,3 +73,22 @@ Eilisen mifusetit vol 2. Sekaan lorautettu pieni määrä soijakastiketta ja oma
 ### Perjantai 4.10.2024
 
 Viimeiset mifusetit, edelleen ihan syötävää. Seuraavaksi olisikin sitten juna Kuopioon ja viikonlopun KÄÄKit. Ensi viikolla sitten intialaista kotioloissa tehtynä?
+
+Ilalla vielä KÄÄK Kuopion päässä kanan muodossa.
+
+### Lauantai 5.10.2024
+
+KÄÄK. Hautajaisten jälkeen ukin muistolle pihviä, kuten ukki olisi halunnut.
+
+### Sunnuntai 6.10.2024
+
+KÄÄK. Nakkikastiketta ja perunaa ennen junaan lähtöä.
+
+Ilalla ei-KÄÄK, vaan tilattu kuolettavan junamatkan jälkeen pizzaa Espoon parhaasta premium-pizzapaikasta, eli Puttesista. Otin tutun margheritan, ja koska Puttesista ei kehtaa tilata vain yhtä, tilasin myös uutena kokeiluna sienipizzan. Tykkään siitä miten ravintola sanoo, että tähän menee sieniä, mutta ei speksaa sen enempää mitä. Näitä syö vielä huomisenkin.
+
+Tarkoituksena oli jo tulla aiemmin kotiin ja tehdä ruokaostokset seuraavalle täysin uudelle reseptille, mutta se jäi kun lähtö siirtyikin ja Kuopiosta kotiutuminen tapahtui vasta illalla. Noh, ensi viikolla sitten kokeiluja.
+
+Puttesin pizzoista margherita on 6/5 kuten aina. Sienipizzassa oli sama 6/5 pohja, mutta en ole varma olivatko sienet mieleen. Jotenkin erikoinen maku, vaikka sieniä yleensä syönkin. Jännänä konseptina myös se, että rucola annetaan mukaan erillisessä pussissa ja sitä voi maun mukana lisätä.
+
+![putte 1](./lihaton2024/putte1.jpg)
+![putte 2](./lihaton2024/putte2.jpg)
