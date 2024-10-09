@@ -3,5 +3,9 @@ set -e
 
 pandoc -f markdown -t html lihaton.md > temp.html
 cat head.template temp.html tail.template > lihaton.html
-cp lihaton.html deploy-path-here/
-cp images/* deploy-path-here/lihaton2024/
+# I don't know why pandoc generates figures for images and I don't care
+sed -i '/\<figure/d' lihaton.html
+sed -i '/\<figcaption/d' lihaton.html
+cp lihaton.html /public/path/lihaton.html
+cp images/* /public/path/lihaton2024/
+chmod +r /public/path/lihaton2024/*

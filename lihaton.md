@@ -100,3 +100,45 @@ Tulikin yllättäen toimistopäivä. Toimistorakennuksen keskiverrossa lounasrav
 ![kasvisratatouille](./lihaton2024/kasvisratatouille.jpg)
 
 Ihan syötävää tavaraa, mutta pysyvämmän mielipiteen saisi paremmasta lounaspaikasta tai itse tekemällä. Mukana myös jotain keltaisia pavunkaltaisia elukoita, joista ei tullut allergiaa. Olisinpa kysynyt mitä ne olivat.
+
+### Tiistai 8.10.2024
+
+Tervetuloa syvään päätyyn lihatonta lokakuuta!
+
+![palak paneer ainekset](lihaton2024/palak-paneer-ainekset.jpg)
+
+Koska reseptinä on työkaverin mukaan "helppo" intialainen palak paneer, eli pinaatti-kotijuusto -setti, niin tuli raivata olohuoneen yksi pöytä tyhjäksi. Ei saakeli tätä tavaramäärää saa keittiöön mahtumaan. Lisäksi kaivoin kerran käytetyn monitoimikoneen häkkikomerosta ja puhdistin sen toimimaan blenderinä. Saatu lahjana joskus vajaa 20 vuotta sitten. Toimii yhä!
+
+Tämän "helpon" reseptin pituus itselle auki kirjoitettuna oli 43 riviä tekstiä, mutta jospa tästä oppisi tekemään kaiken selkärangasta niin ettei tarvitse tarkastaa jokaista vaihetta. Työkaverin ohjeina oli se, että garam masala tulee aina laittaa ihan lopussa, mikä voi selittää miksi sitä en ole itse osannut käyttää aiemmin.
+
+Paneer on sellainen juustoeläin, jossa ei ole itsessään mitään makua. Sen tulee imeä itseensä makua kastikkeesta, mutta en siitä huolimatta ole edes ravintelissa syönyt hyvää paneeria. Ei se pahaa ole ollut - enemmänkin mautonta. Miten mahtaa nyt käydä?
+
+Ohjeissa sanottiin "3 chiliä" sen enempää speksaamatta mitä chilejä tulisi käyttää. Koska ajattelin vielä pystyä puhumaan ruokailun jälkeen, käytin yhden prismasta löydetyn "medium"-chilin. Prisman mausteosastolta en löytänyt "rohtosarviapilaa" (kasuri methi) ja mausteneilikkaa (cloves), joten ilman niitä mennään tällä kertaa. Tokkopa huomaan eroa.
+
+Pinaattia ohjeen mukaan laitetaan "1 bunch". En tiedä mitä se tarkoittaa, joten laitoin yhden 150g paketin. Ostin vahingossa baby pinaattia. En tiedä miten se eroaa aikuisesta pinaatista.
+
+![palak paneer hommissa](lihaton2024/palak-paneer-hommissa.jpg)
+
+Viime hetken ajatuksena tuli vielä se, että eihän minulla ole mitään mihin tätä settiä laittaisi! Kiirellä piti vielä pestä riisit. Huh - onneksi muistin ennen aloittamista. Varmaan tämä on Intiassa päivänselvää eikä sitä tarvitse mainita. Sitten tajusin vielä, että tähän jonkun naan-leivän kaipaisi, mutta halu ei riitä sellaisen tekemiseen.
+
+Valmistus oli kohtuu kivuton kun valmistautui kunnolla. Ainut ylläri olivat paneerit, jotka jäivät kiinni teräspannuun. Arvelisin, että tässäkin tulisi muuntaa rasvan ja voin määrää pannun mukaan.
+
+![palak paneer pannu](lihaton2024/palak-paneer-pannu.jpg)
+
+Tässä vaiheessa ei voinut muuta kuin aloittaa uudella pannulla ja tehdä uuden voi-rasva -seoksen seuraavaan vaiheeseen. Onneksi riisinkeittimessä on lämpimänäpitämistoiminto.
+
+Aikaa koko hommaan meni noin 40 min, mutta tuota saa kyllä lyhennettyä kun tekee rinnakkain juttuja eikä tarvitse lukea ohjeita.
+
+![palak paneer valmis](lihaton2024/palak-paneer-valmis.jpg)
+
+Uskomattomasti maku oli parempi kuin ravintolassa. Paneereihin tuli sopivasti rapeutta + makua kastikkeesta ja suolasta. 1 chili oli vielä omalla kipukynnyksellä, mutta 3 olisi jäänyt syömättä. Ehkä jatkossa hiukan lisää ruokakermaa ja 1.5 chiliä + joku naan-leipä kaupasta? Ja sama ilman pannun pilaamista. Jos tämän valmistuksen saa nopeutettua ja ehkä tehtyä 2 päivän satsin kerralla, niin jatkoon menee.
+
+Entäs suolan määrä?
+
+* Paneer-juusto: 0.225g (ei ihme ettei tämä maistu miltään)
+* Ruokakerma: noin 0.048g
+* Voi: noin 0.42g
+* Lisättyä suolaa 3.75g
+* Yhteensä: 4.433g
+
+Tässäkin taas suolaa voi kalibroita lisäämällä sitä vähemmän. Voisikohan sen korvata muilla mausteilla?
