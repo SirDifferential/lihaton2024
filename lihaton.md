@@ -142,3 +142,44 @@ Entäs suolan määrä?
 * Yhteensä: 4.433g
 
 Tässäkin taas suolaa voi kalibroita lisäämällä sitä vähemmän. Voisikohan sen korvata muilla mausteilla?
+
+### Keskiviikko 9.10.2024
+
+Palak paneer vol 2.
+
+Kun opettelen reseptejä ja tutkin sen ottamista normaaliin ruokavalioon, teen usein samaa ruokaa monta päivää putkeen samalla vaihtaen jotain. Tänään yritin muistaa vaiheet ulkoa, joka lähes onnistui, ja optimoin tekoa niin ettei tarvitsisi niin paljon siirrellä juttuja kulhoista toisiin. Tein myös monta vaihetta ristiin, joka vaatii vielä kalibrointia että hommat synkkautuvat paremmin.
+
+Lisäksi ilmatöhötin paneerit sen sijaan että yrittäisin pannulla saada hyviä. Tuli kuivempia - ehkä voitelen niitä enemmän ennen töhötystä huomenna.
+
+Saisikohan huomiselle kaupasta naan-leipää?
+
+![palak paneer valmis 2](lihaton2024/palak-paneer-valmis-2.jpg)
+
+Yksi ongelma intialaisessa ruoassa on haju. Eilen työkaverini varoitti, että kantsii pistää vaatteet kaappeihin suojaan ennen ruoanlaiton aloittamista. Aluksi en haistanut mitään, mutta lenkiltä kotiin tulessa oven avatessa rappukäytävään vyöryi maustepilvi. Kuulemma 1:1 suhteella veden ja etikan keittäminen poistaa hajun. Ikävästi etikka on yksi vastenmielisimmistä hajuista jonka tiedän.
+
+### Torstai 10.10.2024
+
+Palak paneer vol 3. Viimeinen paketti paneeria kokattu ja huomenna jotain muuta.
+
+Tänään kokeilin vaihtaa 3/4tl suolaa -> 2 rkl vähäsuolaista soijakastiketta. Tällä tavalla annoksen kokonaissuola pysyi 2.72 grammassa, mukavasti alle saantisuosituksen, mutta myös maku jäi kaipaamaan suolaa. Lisäksi laitoin sekaan kokonaisen tomaatin puolikkaan sijaan. Paneerit paistoin pinnoitetulla wokkipannulla, jolla homma onnistui hyvin.
+
+Nyt kun reseptiä on kokeillut kolme kertaa, niin tämä alkaa jo onnistui muistista. Hitaan tästä reseptistä tekee lähinnä asioiden synkkaaminen keskenään. Jos paneerit tekee pannulla, se lukitsee yhden vaiheen odottamaan paneereja, joten ilmatöhötys on nopeampi tapa. Veikkaan että homman saisi valmistettua 25min sisään, jos tekee yhtäaikaa paneerit, lopullisen mausteseoksen, pinaattien keittämisen, ja riisin, mielellään niin, että kaikki valmistuvat yhtä aikaa.
+
+Ehkäpä myöhemmin tämän kuun aikana kokeilee tehdä tämän reseptin vaikka 3-4x ainesmäärillä ja tekee useamman päivän satsin kerrallaan?
+
+### Perjantai 11.10.2024
+
+Kaupassa ei ole jaksanut käydä eikä uutta reseptiä vielä keksiä, joten tein helposti tofu wokkia. Viime hetken muutoksena laitoin halloumin tilalle puolikkaan paketin vöneriä ilmatöhötettynä. Niitä [pitää](https://kruulos.org/ilmat%C3%B6h%C3%B6tin.txt) töhöttää 5 min esilämmityksen jälkeen 180°C. Kokeilin aiemmin töhöttää tofuja yhdessä wokkivihannesten kanssa, mutta kasviksista tuleva kosteus imeytyi tofuihin.
+
+![tofu wok vönerillä valmistus](lihaton2024/tofu-wok-vonerilla-valmistus.jpg)
+![tofu wok vönerillä valmis](lihaton2024/tofu-wok-vonerilla-valmis.jpg)
+
+Ihan toimiva setti. Kyllä halloumi vönerin tosin voittaa.
+
+* 300g jalotofu: 3.3g
+* 75g soba: 0.75g
+* 250kasvikset 1.1g
+* 100g Vöner: 1.8g
+* Yhteensä: 6.95g
+
+Jatkoideana voisikin olla vaihtaa jalotofu vähemmän suolaiseen tofuun. Tähän päivään mennessä kaikki muut tofut ovat olleet huonompia maultaan. Täytynee silti kokeilla jälleen.
