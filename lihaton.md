@@ -183,3 +183,13 @@ Ihan toimiva setti. Kyllä halloumi vönerin tosin voittaa.
 * Yhteensä: 6.95g
 
 Jatkoideana voisikin olla vaihtaa jalotofu vähemmän suolaiseen tofuun. Tähän päivään mennessä kaikki muut tofut ovat olleet huonompia maultaan. Täytynee silti kokeilla jälleen.
+
+### Lauantai 12.10.2024
+
+Viikonloppuisin ei ole aikaa vaivalloiseen ruoanlaittoon tai reseptien miettimiseen. Yleensä teen perjantaina viikonlopun sapuskat valmiiksi, jotta romaanien kirjoittamista ei tarvitse pysäyttää muuta kuin ruoan lämmityksen ajaksi. Nyt mitään sapuskaa ei ollut, joten tilailin pitkästä aika Pizza Service Mankkaasta vöner-rullan.
+
+Jos tästä paikasta et ole aiemmin kuullut, niin heidät tunnetaan jetpackin käytöstä toimituksissa. En ole koskaan nähnyt heidän laskeutuvan talon pihalle, mutta en muuten osaa selittää heidän nopeita toimituksiaan. Nyt ennuste lauantain ruuhka-aikaan oli 45 min, vöneri oli minulle kädessä 20 min tilauksen tekemisestä. Google maps arvioi tänne ajamisen kestävän 12 min. Joko *tosi* nopea auto tai jetpack, siis.
+
+![vöner rulla](lihaton2024/vöner-rulla.jpg)
+
+Vöner-rulla oli, kuten aina, hyvää. Helsingin seudulla käytetään kebab-lihana jotain heikompaa laatua kuin Turussa tai vaikkapa Oulussa (tai kastikkeet ovat huonompia). Tämän takia täällä päin on aivan sana tilata vöneriä, koska ei se liha kuitenkaan sen parempaa ole.
