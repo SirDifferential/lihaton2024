@@ -193,3 +193,19 @@ Jos tästä paikasta et ole aiemmin kuullut, niin heidät tunnetaan jetpackin k�
 ![vöner rulla](lihaton2024/vöner-rulla.jpg)
 
 Vöner-rulla oli, kuten aina, hyvää. Helsingin seudulla käytetään kebab-lihana jotain heikompaa laatua kuin Turussa tai vaikkapa Oulussa (tai kastikkeet ovat huonompia). Tämän takia täällä päin on aivan sana tilata vöneriä, koska ei se liha kuitenkaan sen parempaa ole.
+
+### Sunnuntai 13.10.2024
+
+Ensimmäinen Jussin resepti, eli vöner iskender. Syynä lähinnä se, että jääkaapissa oli vöneriä avattu paketti ja halusin sen sieltä pois ennen maanantain paluuta terveellisempään ruokaan.
+
+Niin oudolta kuin se kuullostaakin, en ole ikinä syönyt kebab iskenderiä, enkä ihan tiennyt mitä olen edes tekemässä. En myöskään ole ikinä käytänyt jogurttia aineksena, enkä muutenkaan koskaan jogurttia syö.
+
+![vöner iskender ainekset](lihaton2024/vöner-iskender-ainekset.jpg)
+
+Kaupasta löytyi lopultakin pita-leipää (mutta ei naan-), koska ei sitä jaksa itse tehdä. Muita mietintöjä kaupasta kotiin oli: Mitä eroa on paseeratulla tomaatilla, tomaattipyreellä, ja tomaattimurskalla? En keksinyt vastausta, enkä sitä vielä halua spoilata.
+
+![vöner iskender valmis](lihaton2024/vöner-iskender-valmis.jpg)
+
+Reseptistä jäi itselle vähän auki, onko tämä yksi vai kaksi annosta. Söin kaiken. Nälkä siirtyi onnistuneesti. Ainakin 500 grammaa paseerattua tomaattia oli riittävästi. En myöskään ollut varma tuliko jogurtti ja salaatti pitää erillään vai sotkea kaiken päälle.
+
+Ihan pätevä setti, mutta vöner on vähän nähty tässä vaiheessa. Huomenna sitten taas syvään päätyyn samalla kun pohditaan eläinlajeja.
