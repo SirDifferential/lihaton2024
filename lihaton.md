@@ -260,3 +260,7 @@ Suolan määrä per annos:
 * Yhteensä: 2.01g
 
 Terveellistä tämä varmasti on. No, tätä on nyt syödä asti seuraavat pari päivää.
+
+### Keskiviikko 16.10.2024
+
+Eilisen lasagnen viimeiset jämät. Noh. Suolalla tuli paremmaksi mutta ei mene jatkoon.
