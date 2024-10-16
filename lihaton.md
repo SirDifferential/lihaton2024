@@ -209,3 +209,54 @@ Kaupasta löytyi lopultakin pita-leipää (mutta ei naan-), koska ei sitä jaksa
 Reseptistä jäi itselle vähän auki, onko tämä yksi vai kaksi annosta. Söin kaiken. Nälkä siirtyi onnistuneesti. Ainakin 500 grammaa paseerattua tomaattia oli riittävästi. En myöskään ollut varma tuliko jogurtti ja salaatti pitää erillään vai sotkea kaiken päälle.
 
 Ihan pätevä setti, mutta vöner on vähän nähty tässä vaiheessa. Huomenna sitten taas syvään päätyyn samalla kun pohditaan eläinlajeja.
+
+### Maanantai 14.10.2024
+
+Päivän syvä pääty siirtyi huomiselle julmetun väsymyksen iskettyä päälle. Pohdintana on, josko tämä on vehnän syytä. Verikokeet ovat jo aiemmin osoittaneet, että minulla on kohtuu voimakas vehnäallergia, mutta olen siitä huolimatta syönyt vehnää. Nyt pohdin josko nämä väsymysjaksot linkkautuvat suuren vehnämäärän syömiseen, mitä viime viikon aikana tapahtui.
+
+Niinpä jatkossa lihaton lokakuu on myös vehnätön lokakuu. Päivän suunniteltu ruoka siirtyi huomiselle, koska en saa sitä jo ostetuilla kamoilla tehtyä ilman vehnää. Niinpä tein tänään (yllätys) tofu wokkia korvaten soba-nuudelit (tattari + VEHNÄ) riisinuudeleilla. On muuten uskomattoman vaikeaa löytää asioita kaupasta ilman vehnää.
+
+### Tiistai 15.10.2024
+
+Noniin, syvä pääty vol 2. Päivän ruoka on kasvislasagne kesäkurpitsalla. Jep. Semmoinen kurpitsa se. Juu.
+
+No joo, myönnetään että en tiedä miltä kesäkurpitsa näyttää tai minkälainen eläin on kyseessä. Lähdin siis metsästämään.
+
+Prisman vihannesosastolta löysin tämän lajin, mutta tarkka lukija huomaa ettei kyseessä ole kesäkurpitsa.
+
+![tämä ei ole kesäkurpitsa](lihaton2024/kesäkurpitsa2.jpg)
+
+Seuraavaksi löysin tämän eläimen. Huomaa teksti: ei ole kesäkurpitsa.
+
+![tämäkään ei ole kesäkurpitsa](lihaton2024/kesäkurpitsa3.jpg)
+
+Lopulta löysin laidunalueen laidoilta itse päivän eläimen. Tämä ON kesäkurpitsa.
+
+![tämä on kesäkurpitsa](lihaton2024/kesäkurpitsa.jpg)
+
+Olen varmaankin syönyt kyseistä eläintä joskus lounasravintolassa, mutta se on aina ollut vain nimi jota en ole osannut yhdistää kuvaan. Nyt tiedän tämänkin.
+
+![tässä kuvassa on kesäkurpitsa](lihaton2024/lasagne-ainekset.jpg)
+
+Lasagnea en ole ikinä tehnyt missään muodossa, koska se on niitä ruokalajeja joiden tekemiseen saa menemään paljon aikaa. Viimeksi kun lasagnea söin, niin se oli itse asiassa vahingossa tilattu kasvisversio ravintelissa. Puolivälissä lasagnen syömissä huomasin virheeni ja pohdin ääneen kuinka hyvää kasvislasagne on.
+
+Toisin kuin kuvassa väitetään, en käytänyt sinihomejuustoa vaan mozzarellaa. Löysin myös prismasta gluteiinitonta jauhoa, jolla korvasin vehnäjauhon 1:1 -suhteella.
+
+Lasagnen ääntäminen on muuten "la. sak. ne."
+
+![tässäkin kuvassa on kesäkurpitsa](lihaton2024/lasagne-uuniin.jpg)
+
+Puuh, oli muuten leikattavaa. Tätä ruokaa tehdessä on suosiolla valmistettava vähintään kolmen päivän setti. Tässäkin rautainen kokemus antaisi lisää vauhtia, mutta kyllä tähän melkein tunti aktiivista tekemistä meni ensimmäisellä kerralla. Saisikohan vihannekset pilkottua tehokkaammin jollain teknologialla?
+
+![myös tässä kuvassa on kesäkurpitsa](lihaton2024/lasagne-valmis.jpg)
+
+Hmm. Turhan suomalainen resepti, sillä ei tässä oikein maistu mikään. Mausteita saisi laittaa 10 kpl enemmän, ja ehkä tehdä kesäkurpitsan sijaan soijarouheesta.
+
+Suolan määrä per annos:
+
+* Juusto 0.2g
+* Voi 0.21g
+* Suola: 1.6g
+* Yhteensä: 2.01g
+
+Terveellistä tämä varmasti on. No, tätä on nyt syödä asti seuraavat pari päivää.
