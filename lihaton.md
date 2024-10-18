@@ -273,7 +273,7 @@ Toimistopäivä. Tiukan aikataulun takia oli tarkoitus käydä keittolounaalla a
 
 Aika keskivertoa kamaa. Osaisin varmaan itse tehdä parempaa. Tässä maistui lähinnä suola, kuten Dylanissa on tapana.
 
-![halloumi burger](lihaton2024/naughty1.jpg)
+![halloumi burger](lihaton2024/naughty.jpg)
 
 Illemmalla käytiin sitten ennen ampumaradalle menoa Naughty Burgerissa. Kokeilin halloumi burgerin. Noh. Aika keskivertoa. Jotenkin halloumi ravintoloissa tuntuu aika kumiselta purtavalta. En tiedä mitä itse teen ilmatöhötyksen kanssa eri tavalla.
 
