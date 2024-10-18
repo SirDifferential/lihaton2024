@@ -264,3 +264,21 @@ Terveellistä tämä varmasti on. No, tätä on nyt syödä asti seuraavat pari 
 ### Keskiviikko 16.10.2024
 
 Eilisen lasagnen viimeiset jämät. Noh. Suolalla tuli paremmaksi mutta ei mene jatkoon.
+
+### Torstai 17.10.2024
+
+Toimistopäivä. Tiukan aikataulun takia oli tarkoitus käydä keittolounaalla alakerran keskiverrossa ravintelissa ja sitten syödä kunnolla tiimipäivän illallisella, mutta siellähän olikin jauhelihakeittoa tarjolla. Menin siis toiseen päähän taloa saman ketjun toiseen keskivertoon ravinteliin, jossa tarjottiin jotain soijarouhe-settiä.
+
+![joku soijarouhesetti](lihaton2024/soijarouhesetti.jpg)
+
+Aika keskivertoa kamaa. Osaisin varmaan itse tehdä parempaa. Tässä maistui lähinnä suola, kuten Dylanissa on tapana.
+
+![halloumi burger](lihaton2024/naughty1.jpg)
+
+Illemmalla käytiin sitten ennen ampumaradalle menoa Naughty Burgerissa. Kokeilin halloumi burgerin. Noh. Aika keskivertoa. Jotenkin halloumi ravintoloissa tuntuu aika kumiselta purtavalta. En tiedä mitä itse teen ilmatöhötyksen kanssa eri tavalla.
+
+![poppamies-kastike](lihaton2024/naughty2.jpg)
+
+Naughty Burgerin yksi hienoimpia ominaisuuksia on chilisoossi-tiski. Nyt kun olen enemmän chilejä harjoitellut, niin kokeilin varovasti 4/10 -soossia. Ei tuntunut miltään. Vissiin tullut jo tuon verran toleranssia. Oli kyllä ihan hyvän makuistakin kastiketta - ehkä ostan kotiin.
+
+Molempien aterioiden suola: törkeästi.
