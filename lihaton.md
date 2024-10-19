@@ -282,3 +282,13 @@ Illemmalla käytiin sitten ennen ampumaradalle menoa Naughty Burgerissa. Kokeili
 Naughty Burgerin yksi hienoimpia ominaisuuksia on chilisoossi-tiski. Nyt kun olen enemmän chilejä harjoitellut, niin kokeilin varovasti 4/10 -soossia. Ei tuntunut miltään. Vissiin tullut jo tuon verran toleranssia. Oli kyllä ihan hyvän makuistakin kastiketta - ehkä ostan kotiin.
 
 Molempien aterioiden suola: törkeästi.
+
+### Perjantai 18.10.2024
+
+Koska viikko on ollut rankka ja lähinnä pettymystä ruoan suhteen, tein hyväksi havaittua tuttua ruokaa. Vuorossa jälleen palak paneer, mutta bulk-versio: raaka-aineet tuplattuna. Olisi voinut myös triplata ainekset, mutta sihen tarvitsisi jo isomman kattilan pinaatin keittoon.
+
+![palak paneer kollaasi](lihaton2024/palak-paneer-four.jpg)
+
+### Lauantai 19.10.2024
+
+Samaa palak paneeria kuin eilen, myöhemmin illalla drunk soulsin yhteydessä muuta kamaa (TBD).
