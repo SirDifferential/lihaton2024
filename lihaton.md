@@ -291,4 +291,30 @@ Koska viikko on ollut rankka ja lähinnä pettymystä ruoan suhteen, tein hyväk
 
 ### Lauantai 19.10.2024
 
-Samaa palak paneeria kuin eilen, myöhemmin illalla drunk soulsin yhteydessä muuta kamaa (TBD).
+Samaa palak paneeria kuin eilen, myöhemmin illalla drunk soulsin yhteydessä tilattiin nepalilaista, jonka tikka paneer ei pärjännyt itse tehdylle. Jännä miten raflojen paneeri on vaan huonoa.
+
+Jääkaappiin jäi myös satunnaisia annoksia, koska valtaosa porukasta otti kasvissettejä.
+
+### Sunnuntai 20.10.2024
+
+Päivällä ei ollut energiaa miettiä asiaa, joten tein wokkia. Illemmalla tutkin kaupasta ostettua mysteeripussia soijaproteiinia.
+
+![soijajuttu](lihaton2024/soijajuttu2.jpg)
+
+Näyttää vähän joltain koiranruoalta. Heti tuli nälkä!
+
+Paketin kyljessä mainittiin "aasialainen soijapata" -resepti. Kokeilin tehdä sitä + laittaa sekaan jämäjuttuja eiliseltä.
+
+![soijajuttu 2](lihaton2024/soijajuttu1.jpg)
+
+Tsatzikia ei ollut, mutta jääkaapissa oli kreikkalaista jogurttia ja kurkkua. Eikös se ole sama asia? Tästä reseptistä puuttuivat myöskin mausteet, joten sekaan meni mm. chiliä.
+
+Itse soijahommelit imivät itseensä vettä ja etenkin haudutuksen aikana muuttuivat muhjuksi, joka muistutti lähinnä karjalanpaistissa vedessä uivaa läskiä. Olisin itse ehkä valmiimpi rouskuttamaan näitä kuivina.
+
+![soijajuttu 3](lihaton2024/soijajuttu3.jpg)
+
+En myöskään ihan ymmärrä miten tämä tulisi syödä tsatzikin kanssa - otanko syömäpuikoilla tuollaisen läskitofun ja dippaan sitä eri astiaan? Vai tulisiko tsatziki sekoittaa tähän "pataan"? Kokeilin vaihtaa lusikkaan, jolla ensin kaavin tofua, riisiä, ja kasvislientä suuhun, sitten otin lusikalla "tsatzikia" ja sekoitin suussa. Merkillinen ruoka.
+
+![soijajuttu 4](lihaton2024/soijajuttu4.jpg)
+
+Hm. Jos en olisia chiliä laittanut, niin ei tässä olisi maistunut yhtään mikään muu kuin kreikkalainen jogurtti. Mikä suomalaisia reseptejä vaivaa?
