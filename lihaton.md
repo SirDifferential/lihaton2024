@@ -192,7 +192,7 @@ Jos tästä paikasta et ole aiemmin kuullut, niin heidät tunnetaan jetpackin k�
 
 ![vöner rulla](lihaton2024/vöner-rulla.jpg)
 
-Vöner-rulla oli, kuten aina, hyvää. Helsingin seudulla käytetään kebab-lihana jotain heikompaa laatua kuin Turussa tai vaikkapa Oulussa (tai kastikkeet ovat huonompia). Tämän takia täällä päin on aivan sana tilata vöneriä, koska ei se liha kuitenkaan sen parempaa ole.
+Vöner-rulla oli, kuten aina, hyvää. Helsingin seudulla käytetään kebab-lihana jotain heikompaa laatua kuin Turussa tai vaikkapa Oulussa (tai kastikkeet ovat huonompia). Tämän takia täällä päin on aivan sama tilata vöneriä, koska ei se liha kuitenkaan sen parempaa ole.
 
 ### Sunnuntai 13.10.2024
 
@@ -318,3 +318,19 @@ En myöskään ihan ymmärrä miten tämä tulisi syödä tsatzikin kanssa - ota
 ![soijajuttu 4](lihaton2024/soijajuttu4.jpg)
 
 Hm. Jos en olisia chiliä laittanut, niin ei tässä olisi maistunut yhtään mikään muu kuin kreikkalainen jogurtti. Mikä suomalaisia reseptejä vaivaa?
+
+### Maanantai 21.10.2024
+
+Ei ole tullut päätettyä reseptiä tälle viikolle, eikä tänään kerkiä kauppaan, joten tilasin kahden päivän edestä ravintolasafkaa. Koska en ole vieläkään uskaltanut testata kidney papuja allergian suhteen, nyt vuorossa on intialaista papusettiä + sivuun jo maistettua ja hyväksy havaittua kukkakaalisettiä.
+
+![delhi rasoi 1](lihaton2024/rasoi1.jpg)
+
+Delhi Rasoi Kauniainen on yksi Espoon parhaimpia intialaisia. Ja kyllä, Kauniainen on espoossa. Suosittelen käymään. Heidän toimitusappinsa ei toimi Woltin kanssa, joten Wolt ilmoittaa tilauksen toimitetuksi kun he lähtevät ajamaan ravintolasta (ja tämä selittänee matalan arvostelun Woltissa). Suosittelen tekemään tilauksen suoraan ravintolan sivuilta tai käymään paikan päällä.
+
+![delhi rasoi 2](lihaton2024/rasoi2.jpg)
+
+Kuten aina, voimakkaasti maustettu kukkakaalisetti oli hyvää. Kaloreita tässä tuskin paljon on. Kidney pavut puolestaan olivat ihan ok, ja söin niitä vain pienemmän määrän näin aluksi kun piti kuumotella mahdollista allergiaa. Allergian puolesta jäi vähän epävarma olo. Noh, syön huomenna loput setit ja katson mitä tapahtuu.
+
+### Tiistai 22.10.2024
+
+Eilisen intialaiset setit, mutta nyt paljon enemmän papuja. Arvelisin ettei allergiaa esinny. Pavuista varmaan vaan tulee sellainen raskas olo kun niitä syö.
