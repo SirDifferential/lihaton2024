@@ -325,7 +325,7 @@ Ei ole tullut päätettyä reseptiä tälle viikolle, eikä tänään kerkiä ka
 
 ![delhi rasoi 1](lihaton2024/rasoi1.jpg)
 
-Delhi Rasoi Kauniainen on yksi Espoon parhaimpia intialaisia. Ja kyllä, Kauniainen on espoossa. Suosittelen käymään. Heidän toimitusappinsa ei toimi Woltin kanssa, joten Wolt ilmoittaa tilauksen toimitetuksi kun he lähtevät ajamaan ravintolasta (ja tämä selittänee matalan arvostelun Woltissa). Suosittelen tekemään tilauksen suoraan ravintolan sivuilta tai käymään paikan päällä.
+Delhi Rasoi Kauniainen on yksi Espoon parhaimpia intialaisia. Ja kyllä, Kauniainen on Espoossa. Suosittelen käymään. Heidän toimitusappinsa ei toimi Woltin kanssa, joten Wolt ilmoittaa tilauksen toimitetuksi kun he lähtevät ajamaan ravintolasta (ja tämä selittänee matalan arvostelun Woltissa). Suosittelen tekemään tilauksen suoraan ravintolan sivuilta tai käymään paikan päällä.
 
 ![delhi rasoi 2](lihaton2024/rasoi2.jpg)
 
@@ -334,3 +334,32 @@ Kuten aina, voimakkaasti maustettu kukkakaalisetti oli hyvää. Kaloreita täss�
 ### Tiistai 22.10.2024
 
 Eilisen intialaiset setit, mutta nyt paljon enemmän papuja. Arvelisin ettei allergiaa esinny. Pavuista varmaan vaan tulee sellainen raskas olo kun niitä syö.
+
+### Keskiviikko 23.10.2024
+
+Lasaknen paluu!
+
+
+Viime lasaknesta jäi niin paha olo, että päätin yrittää uudestaan ja korjata tilanteen. Opin virheistäni ja jätin kesäkurpitsan kauppaan, ja sen sijaan kokeilin soijarouhelasaknea. Nyt valmistus meni nopeammin kuin viimeksi, mutta reseptiä seuraten täytettä tuli oudon vähän. Melkein puolet enemmän olisi saanut olla.
+
+![lasakne vol 2](lihaton2024/lasakne-vol2.jpg)
+
+![lasakne vol 2, 2](lihaton2024/lasakne-vol2-2.jpg)
+
+Ylin kerros jäi kuivaksi ja muistutti lähinnä hapankorpun pureskelua, mutta alta löytyi sitten enemmän lasagnemainen koostumus. Maku oli monta kertaa parempi kuin kesäkurpitsa-variantilla. Soijarouhe maustettuna chilillä ja mustapippurilla oli sen verran voimakas, että en välttämättä edes erottaisi jauhelihasta.
+
+Söisin uudestaan. Tarvitsee enemmän tavaraa sisälle + kosteutta ylempiin kerroksiin. Mausteita voi myös laittaa enemmän. Toimisikohan pinaatti soijarouheen kaveriksi? Porkkana ja kesäkurpitsa eivät kuulu uuniruokiin - sen olen jo oppinut tämän lihattoman aikana.
+
+Suolan määrä per annos:
+
+* Juusto 0.2g
+* Voi 0.21g
+* Soijakastike: 0.75g
+* Suola: 2.5g
+* Yhteensä: 3.66g
+
+Suolaa oli passeli määrä omaan makuun. En tiedä toiko soijakastike mitään lisäarvoa. Se tuntuu olevan semmoinen lisuke, jota tulisi laittaa törkeästi tai dippailla siihen.
+
+### Torstai 24.10.2024
+
+Eilisen lasagnea. Ihan pätevää.
