@@ -363,3 +363,24 @@ Suolaa oli passeli määrä omaan makuun. En tiedä toiko soijakastike mitään 
 ### Torstai 24.10.2024
 
 Eilisen lasagnea. Ihan pätevää.
+
+### Perjantai 25.10.2024
+
+Soijarouhetta kun nyt on, niin sitä on johonkin käytettävä. Tomin inspiroimana tein siitä tacoja. Kokeilin valmistuksen näin: 0.5dl rypsiöljyä pannulle kuumaksi, 2dl soijarouhetta sekaan, sotkee, hitusen lisää öljyä, vettä, päälle tacosoossit + tacomauste.
+
+![vegetaco](lihaton2024/vegetaco.jpg)
+
+Noh. En nyt tiedä onko tämä sen parempaa kuin aiemmat soijarouhebologneset tai vastaavat. Soijarouheessa itsessään on jokin pistävä maku, josta en pidä. Lasagnessa se ei tullut esiin samalla tavalla, vaikka valmistus oli sama. Tekisikö vajaa tunti uunissa jotain soijarouheelle?
+
+Olen nyt aika vakuuttunut, että tacot tulee syödä lihalla. Tacot ovat itse asiassa ainut ruoka, jossa yhä syön punaista lihaa kanan sijaan, sillä en koe kanan jauhelihan sopivan tacoihin.
+
+Suolan määrä per annos:
+
+* Taco-soossi: 1.4g
+* Taco-mausteet: 1.5g
+* Suola 0.8g
+* Yhteensä: 3.7g
+
+### Lauantaia 28.10.2024
+
+Eilisen tacoja.
