@@ -381,6 +381,20 @@ Suolan määrä per annos:
 * Suola 0.8g
 * Yhteensä: 3.7g
 
-### Lauantaia 28.10.2024
+### Lauantaia 26.10.2024
 
 Eilisen tacoja.
+
+### Sunnuntai 27.10.2024
+
+Tacoja.
+
+### Maanantai 28.10.2024
+
+Teollisen mittakaavan palak paneer, eli resepti 3x ainesosilla. Tätä varten täytyi käydä ostamassa 7 litrainen teräskattila. Homma alkaa onnistua jo täysin ilman reseptin lukemista, ja nyt tietää, että hidasta on lähinnä veden keittäminen ja suuren paneer määrän valmistaminen. Kun ottaa kaksi liesilevyä käyttöön, niin tämän saa varmasti tehtyä 40 min sisään niin, että seuraavat 3 päivää voi vaan pistää mikroon.
+
+![teollinen palak paneer](lihaton2024/teollinen-palak-paneer.jpg)
+
+![teollinen palak paneer 2](lihaton2024/teollinen-palak-paneer2.jpg)
+
+Kirjoitin myös [reseptin suomalaisittain](lihaton2024/reseptit/palak-paneer.md).
