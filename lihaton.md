@@ -398,3 +398,9 @@ Teollisen mittakaavan palak paneer, eli resepti 3x ainesosilla. Tätä varten t�
 ![teollinen palak paneer 2](lihaton2024/teollinen-palak-paneer2.jpg)
 
 Kirjoitin myös [reseptin suomalaisittain](lihaton2024/reseptit/palak-paneer.md).
+
+### Tiistai 29.10.2024
+
+Toimistopäivä. Paremmassa lounasravintelissa oli kasviskevätkääryleitä, paahdettua perunaa, ja imelää chilikastiketta. Unohdin ottaa kuvan. Chilisoossi oli jotain kaupan halpaa imelää sokerilientä, jos en paljon chiliä saanut irti, mutta onneksi kevätkääryleet olivat oikein päteviä eivätkä uineet rasvassa.
+
+
