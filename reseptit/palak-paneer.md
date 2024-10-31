@@ -18,6 +18,7 @@ Ainesosat:
 * ½ tomaatti
 * Rypsiöljyä
 * Voita
+* Chilejä oman toleranssin mukaan
 
 * Laita 1.4 litraa vettä kiehumaan
 * Pistä riisit tulelle. Fiksuilla kavereilla on riisinkeitin.

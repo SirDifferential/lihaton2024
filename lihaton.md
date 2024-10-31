@@ -403,4 +403,44 @@ Kirjoitin myös [reseptin suomalaisittain](lihaton2024/reseptit/palak-paneer.md)
 
 Toimistopäivä. Paremmassa lounasravintelissa oli kasviskevätkääryleitä, paahdettua perunaa, ja imelää chilikastiketta. Unohdin ottaa kuvan. Chilisoossi oli jotain kaupan halpaa imelää sokerilientä, jos en paljon chiliä saanut irti, mutta onneksi kevätkääryleet olivat oikein päteviä eivätkä uineet rasvassa.
 
+### Keskiviikko 30.10.2024
+
+Viimeiset palak paneerit.
+
+### Torstai 31.10.2024
+
+Kuun loppuun vielä yksi iteraatio wokkia, mutta tällä kertaa vieraissa käytynä, eli tofuna joku kaupan vähäsuolainen versio.
+
+![ei jalotofu](lihaton2024/ei-jalotofu.jpg)
+
+Suolan määrä:
+
+* Pakastekasvikset 1.17g
+* Tofu: ~0g
+* Suola 1.65g
+* Yhteensä: 2.82g
+
+Kuten viisas mies kerran sanoi, jos jalotofu on ihmiskunnan ystävä, voiko sitä hylätä?
+
+No ei. Muut tofut eivät vaan pärjää jalotofun hyvyydelle. Jatkan siis jatkossakin voimakassuolaisella wokilla ja hyväksyn sen hintana, joka on vaan oltava valmis maksamaan.
+
+### Mietteitä
+
+Siinä se - kuun viimeinen kasvisruoka syöty!
+
+Lihattoman lokakuun tarkoituksena oli löytää pari ruokaa, joita ottaa jatkuvaan terveelliseen ruokavalioon liharuokien rinnalle. Tavoitteen saavutin, sillä palak paneer ja soijarouhelasagne tulevat molemmat olemaan nyt normaaleja arkiruokiani. Lisäksi aion kokeilla palak tofua, jolle myös intialainen työkaverini antoi hyväksyntänsä.
+
+Toisena asianhaarana olivat allergiat. Papujen suhteen jäi epäselvä olo. Vihreistä pavuista maha alkoi vääntää, ja kidney-pavut aiheuttivat jotain allergian oloista tunnetta. Testailen muita papuja jatkossa pienissä määrin. Vehnää en ole nyt syönyt pariin viikkoon, ja jätin myös maidon juomisen pois korvaten sen kauramaidolla. En tiedä onko näillä ollut mitään vaikutusta. Palaan luultavasti pian normaaliin ruis/kaura/ohra -leivän syöntiin, sitten vehnään. Maidosta voin periaattessa luopuakin, koska kauramaito on ihan pätevää.
+
+Kokeilin aika vähän kaupan valmiita kasvisruokia, sillä niiden suolamäärät olivat niin törkeät. Jääkaapissa on joitain Tomin suosittelemia romppeita, jotka päätyvät masuun lähiaikoina.
+
+KÄÄK-lukumäärä oli ennakoidut 3, joista en lipsunut sen jälkeen.
+
+Aionko ryhtyä kasvissyöjäksi? En. Mutta nyt olen valmis siirtymään pidemmän ajan tavoitteeseen, eli 50% kasvisruokavalioon. Lisäksi tämä kuukausi pakotti varustelemaan keittiötä vaativampien ruokien valmistamiseen. Ehkä joku päivä lopultakin kokeilen leipoa leipää?
+
+Tulenko toistamaan kokeilun ensi vuonna? Ehkäpä.
+
+Tuliko ikävä lihaa? Pari kertaa mielessä oli ilmatöhötetty kana. Lounasravintoloissa oli myös joskus hankalaa käydä, jos pääruokana oli vain lihaa.
+
+Mikä on To Rob a God? Kysyitkö siis [Farstrider Publishingin™ Jesse Kaukosen™ uusimmasta mesteriteoksesta? Sehän on erinomainen seikkailu, jossa on magiaa, uskomatonta 2D-taidetta, ja hienostunutta sävellystä, puhumattakaan yksityiskohtaisesta proosasta, elegantista kannesta, lukuisista kartoista, ja hauskoista hahmoista.](https://farstrider.fi/books/wanderers-journal/to-rob-a-god)
 
