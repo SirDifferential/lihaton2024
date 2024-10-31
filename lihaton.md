@@ -442,5 +442,5 @@ Tulenko toistamaan kokeilun ensi vuonna? Ehkäpä.
 
 Tuliko ikävä lihaa? Pari kertaa mielessä oli ilmatöhötetty kana. Lounasravintoloissa oli myös joskus hankalaa käydä, jos pääruokana oli vain lihaa.
 
-Mikä on To Rob a God? Kysyitkö siis [Farstrider Publishingin™ Jesse Kaukosen™ uusimmasta mesteriteoksesta? Sehän on erinomainen seikkailu, jossa on magiaa, uskomatonta 2D-taidetta, ja hienostunutta sävellystä, puhumattakaan yksityiskohtaisesta proosasta, elegantista kannesta, lukuisista kartoista, ja hauskoista hahmoista.](https://farstrider.fi/books/wanderers-journal/to-rob-a-god)
+Mikä on To Rob a God? Kysyitkö siis [Farstrider Publishingin™ Jesse Kaukosen™ uusimmasta mestariteoksesta? Sehän on erinomainen seikkailu, jossa on magiaa, uskomatonta 2D-taidetta, ja hienostunutta sävellystä, puhumattakaan yksityiskohtaisesta proosasta, elegantista kannesta, lukuisista kartoista, ja hauskoista hahmoista.](https://farstrider.fi/books/wanderers-journal/to-rob-a-god)
 
